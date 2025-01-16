@@ -1,0 +1,1 @@
+this is just a simple dialogue in polish, i got a 6 for it so for germans a 1 and for americans/UK an A+
